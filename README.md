@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shift8loading
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning critical thinking
+- 💞️ I’m looking to collaborate on nothing yet
+- 📫 How to reach me not yet
